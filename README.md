@@ -15,4 +15,4 @@ Recently started learning in Cybersecurity
 
 [Certificate-Shegorath.pdf](https://github.com/user-attachments/files/32526878/Certificate-Shegorath.pdf)
 
-To see more of my certificates like Cisco Certified Ethical Hacker, message me privately.
+To see more of my certificates like Cisco Certified Ethical Hacker, message me privately, or look at my linkedin
